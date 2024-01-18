@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **jasmeettkaur03@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/jasme/OneDrive/Desktop/DATA%20ANALYSIS/Resume%20pdf.pdf](file:///C:/Users/jasme/OneDrive/Desktop/DATA%20ANALYSIS/Resume%20pdf.pdf)
+- 📄 Know about my experiences [[file:///C:/Users/jasme/OneDrive/Desktop/DATA%20ANALYSIS/Resume%20pdf.pdf](file:///C:/Users/jasme/OneDrive/Desktop/DATA%20ANALYSIS/Resume%20pdf.pdf)](https://drive.google.com/file/d/10fk80VVcZV7UpfEX_dsSBYaP5bHkQZ2W/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
